@@ -36,6 +36,6 @@ Construire des communautés plus résilientes
 
 📩 Contact
 
-Email : votreemail@gmail.com
+Email : jeunesleadersnature@gmail.com
 
 Localisation : Burundi
